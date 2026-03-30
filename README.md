@@ -115,4 +115,5 @@ https://github.com/ahmadalvin92/IT-Support-Ticket-System-Radio-Elshinta
 
 ------------------------------------------------------------------------
 
-⭐ Jangan lupa kasih star!
+Follow Linkedin    : https://www.linkedin.com/in/ahmad-alvin-griffin/
+Follow Instagram   : https://www.instagram.com/ahmad_alvins/
